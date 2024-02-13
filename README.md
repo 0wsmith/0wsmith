@@ -1,3 +1,6 @@
-Student in university for Maths & Computer Science dual major.
+b. math   
+b. computer science, cyber security minor
 
-Contact me at 01 w, smith+ghp, at g mail, dot com, without spaces or commas.
+having fun
+
+contact me at 01 w, smith+ghp, at g mail, dot com, without spaces or commas.
